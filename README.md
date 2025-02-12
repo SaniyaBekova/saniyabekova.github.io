@@ -1,1 +1,1 @@
-# saniyabekova.github.io
+# https://saniyabekova.github.io/
